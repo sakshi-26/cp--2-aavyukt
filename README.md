@@ -1,1 +1,1 @@
-# cp--2-aavyukt
+# CP-2
